@@ -1,1 +1,1 @@
-Microverse Trials 1 by Eric and Blesslin .
+Microverse Trials 1 Web Development by Eric and Blesslin .
